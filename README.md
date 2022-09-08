@@ -1,1 +1,1 @@
-# JSGyak
+# Győri Zsófia
